@@ -1,2 +1,0 @@
-# Prishk-Wedding
-Wedding Invitation
